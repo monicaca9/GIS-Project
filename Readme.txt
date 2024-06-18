@@ -1,6 +1,5 @@
-Thanks for downloading this template!
-
-Template Name: Company
-Template URL: https://bootstrapmade.com/company-free-html-bootstrap-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+ANJAY WOWOOWO
+bikin web muncul map
+"hah kok bisa bang???"
+bisa dong anjayyyy
+pusingggg tolong akuuuuuu
